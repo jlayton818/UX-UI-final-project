@@ -1,0 +1,1 @@
+Since I did a UX comparison I think everything can be found in either the word file or the pdf. I included images and each section is bolded. everything should be pretty straightforward.
